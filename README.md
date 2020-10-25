@@ -1,3 +1,7 @@
+# Video
+
+[How to use[RUS]](https://youtu.be/RWVld4OqsM0)
+
 # Why
 
 <cite>
